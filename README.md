@@ -1,0 +1,1 @@
+Eski efsane botlardan olan Çekiliş Var! çekiliş botu olup birçok kullanıcıya hizmet etmeyi amaçlamıştır. Bu bot en son 2 yıl önce hizmet verebilmiş, ardından deaktif edilmiştir! Bu botun ve kodların tek sahibi Can Bey (Discord:Can Bey#8909 ID:706553518055620609)'dir.
